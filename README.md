@@ -4,6 +4,6 @@
 
 ### Lanaya
 
-![](https://imgur.com/a/foJXske)
+![](https://i.imgur.com/sP5RV7T.jpeg)
 
 pig
